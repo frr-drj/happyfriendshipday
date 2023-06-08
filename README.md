@@ -1,4 +1,4 @@
-# happy-riendshipday
+# happyfriendshipday
 Wishing a happy friendship day 2023(funny pranks)
 
 
